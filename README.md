@@ -26,3 +26,22 @@ Pétalas crescem junto ao espinho,
 Na sutil luz de sua firme espera.
 
 --Kleiton H. Martins
+parte de braian:
+receita de brownie
+200 g de manteiga
+1 xícara (chá) de NESCAU®
+4 ovos
+1 e meia xícara (chá) de açúcar
+1 e meia xícara (chá) de farinha de trigo
+1 xícara (chá) de nozes picadas
+
+  Em uma panela, derreta a manteiga e dissolva o NESCAU. Reserve.
+
+  Bata levemente os ovos com um garfo, acrescente o açúcar e misture bem.
+
+  Acrescente o creme de NESCAU reservado, a farinha de trigo peneirada e as nozes picadas, incorporando tudo muito bem.
+
+  Despeje a massa em uma forma retangular (24 x 35 cm) untada com manteiga e polvilhada com farinha de trigo e leve ao forno médio (180°C), preaquecido, por cerca de 25 minutos.
+
+  Deixe esfriar e então corte-o em quadradinhos. 
+  aproveite
