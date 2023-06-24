@@ -89,3 +89,11 @@ Não importa qual seja o dia
 Vamos viver, vadiar
 O que importa é nossa alegria
 Tão natural quanto a luz do dia
+
+Parte de Gabriel:
+Cuesta na meia esquerda 
+ameaçou não bateu vem pra tabela
+Peglow com Cuesta 
+bateu cruzado 
+Edenilsooooooooooooooooooooooooooooonn 41 Anos  
+Goooooooooooool subiu a bandeira
