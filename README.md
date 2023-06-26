@@ -129,3 +129,7 @@ Radioso de luz, varonil
 Segue a tua senda de vitórias
 Colorado das glórias
 Orgulho do Brasil
+
+Parte de Erick:
+
+A meta é ficar rico, a prosperidade atrai a prosperidade. Tempo é dinheiro, não o jogue fora com coisas que não o merecem, porém não fique sem aproveitar a vida, pois com o tempo tu faz dinheiro, mas o mesmo dinheiro não pode comprar esse tempo de volta.
